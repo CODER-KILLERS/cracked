@@ -1,1 +1,5 @@
-# Cracked Facebook
+# TRICKERS FACEBOOK
+
+```
+script crack Facebook anti checkpoint
+```
